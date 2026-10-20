@@ -1,0 +1,1 @@
+project waxa uu yahay inaa xisaabino 1 kg ee bariis ah inta uu magalada qiimo ahaan kajoogo inaga oo kusaleene 15 dukaan oo kuyaalo magalada mogadisho inaga oo data kaso aruurineeno dagmooyin kala duwan caasimada 
